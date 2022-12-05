@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 Smile always makes you happy
 
 <!--
 **Oracle728/Oracle728** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
